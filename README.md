@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... Are you a Gamer? We can Collab! Want to work on something related to Fashion? Inbox me
 - 📫 How to reach me ... sterzin02447@naver.com
 - 😄 Pronouns: ... They/Them/Theirs
-- ⚡ Fun fact: ... I multitask like a boss! 
+- ⚡ Fun fact: ... I actually don't know what i'm doing.
 
 <!---
 heysterzin/heysterzin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
